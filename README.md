@@ -39,9 +39,10 @@ Pro shippers, etc (DNI)
 
 Endo systems (DNI)
 
-Under ages 17 or younger (DNI)
+Ages 17 or younger (DNI)
 
 BSD & CRK fans are on THIN ice (IWEC)
+We will never interact first with those fandoms.
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
 
