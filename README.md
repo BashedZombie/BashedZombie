@@ -22,10 +22,12 @@ More in-depth information is in our carrd & pronouns.cc, one holds information, 
 **BFYI** You should know...
 
 - Despite being in the bsd fandom, we will never interact with others fully if they're sitting as a cos of a character, espeically Nakaharas. You've ruined the character so much I refuse to talk to anyone who only sees his fanon version.
+- If you've read the BSD manga and other BOOKS then feel free to interact. 
 - Some of our fictives don't like doubles.
 - We will never see IRLs or FictKins as the actual character. We will not be feeding into any delusions and will use strictly nicknames for you.
 - We do not add people unless we've spoken at least once or twice! This includes adding us on Discord.
-- We're sexually repulsed and jokes make us heavily uncomfortable. If we have hidden you that is likely the reason.
+- We're sexually repulsed and jokes make us heavily uncomfortable. If we have hidden you that is likely the reason. Yes, this includes the act of humping your ponytown friend.
+- I do not support MSI but we like their songs.
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
 
