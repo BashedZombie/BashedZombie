@@ -8,9 +8,7 @@
 Heyo! We've a fictive heavy DID system!
 **Medically recongised.**
 This is not an excuse, but we won't remember everyone we have talked to, don't take it personal.
-
 You can call us Zombie, Skeleton or any nickname you come up with (as long as it's reasonable)
-
 More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
 
 
@@ -23,10 +21,10 @@ More in-depth information is in our carrd & pronouns.cc, one holds information, 
 
 - Despite being in the bsd fandom, we will never interact with others fully if they're sitting as a cos of a character, espeically Nakaharas. You've ruined the character so much I refuse to talk to anyone who only sees his fanon version.
 - If you've read the BSD manga and other BOOKS then feel free to interact. 
-- Some of our fictives don't like doubles.
 - We will never see IRLs or FictKins as the actual character. We will not be feeding into any delusions and will use strictly nicknames for you.
 - We do not add people unless we've spoken at least once or twice! This includes adding us on Discord.
 - We're sexually repulsed and jokes make us heavily uncomfortable. If we have hidden you that is likely the reason. Yes, this includes the act of humping your ponytown friend.
+- We will hide you if you feminize a character or see only their fanon version. This includes sexualising them or babying them.
 - I do not support MSI but we like their songs.
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
