@@ -1,4 +1,4 @@
-## ![](https://i.pinimg.com/736x/29/6c/7c/296c7c240dc35d2eb43a4fae8fdfd85d.jpg)
+![](https://i.pinimg.com/736x/56/a0/c4/56a0c427153305f938ea3c8321ff5835.jpg)
 ## : Welcome to our **GitHub**! :
 
 ┏ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┓
@@ -12,7 +12,7 @@ You can call us Zombie, Skeleton or any nickname you come up with (as long as it
 More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
 
 
-⌣⌣⌣⌣⌣⌣⌣⌣
+⌣⌣⌣⌣⌣⌣
 DNI OR IWEC?!
 
 Basic DNI!
