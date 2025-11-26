@@ -13,7 +13,17 @@ More in-depth information is in our carrd & pronouns.cc, one holds information, 
 
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
+DNI OR IWEC?!
 
+Basic DNI!
+Pro shippers, etc (DNI)
+Endo systems (DNI)
+IRLs of characters (DNI)
+Ages 17 or younger (DNI)
+BSD & CRK fans are on THIN ice (IWEC)
+We will never interact first with those fandoms.
+Ships we disagree with (Not a DNI just don't expect us to talk about them or act interested.)
+Genderbends or feminizations of characters that are not canon or alter/system based. (DNI)
 
 ⌢⌢⌢⌢⌢⌢⌢⌢
 
@@ -29,23 +39,9 @@ More in-depth information is in our carrd & pronouns.cc, one holds information, 
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
 
-⌢⌢⌢⌢⌢⌢⌢⌢
+⌢⌢
 
-DNI OR IWEC?!
-
-Basic DNI!
-
-Pro shippers, etc (DNI)
-
-Endo systems (DNI)
-
-Ages 17 or younger (DNI)
-
-BSD & CRK fans are on THIN ice (IWEC)
-We will never interact first with those fandoms.
-
-⌣⌣⌣⌣⌣⌣⌣⌣
-
+⌣⌣⌣⌣⌣⌣
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
 
 ![](https://i.pinimg.com/736x/7b/a2/a7/7ba2a783c400cfb675ff52bf98e73d50.jpg)
