@@ -39,9 +39,6 @@ DNI OR IWEC?!
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
 
-⌢⌢
-
-⌣⌣⌣⌣⌣⌣
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
 
 ![](https://i.pinimg.com/736x/7b/a2/a7/7ba2a783c400cfb675ff52bf98e73d50.jpg)
