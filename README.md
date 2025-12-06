@@ -12,7 +12,8 @@ You can call us Zombie, Skeleton or any nickname you come up with (as long as it
 More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
 
 
-⌣⌣⌣⌣⌣⌣
+⌣⌣⌣⌣⌣⌣⌣⌣
+<br> </br>
 DNI OR IWEC?!
 
 - Basic DNI!
