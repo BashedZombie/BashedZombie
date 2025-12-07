@@ -10,6 +10,7 @@ Heyo! We've a fictive heavy DID system!
 This is not an excuse, but we won't remember everyone we have talked to, don't take it personal.
 You can call us Zombie, Skeleton or any nickname you come up with (as long as it's reasonable)
 More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
+
  ‿‿‿‿‿‿‿
 
  ⁔⁔⁔⁔⁔⁔⁔
