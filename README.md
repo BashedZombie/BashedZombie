@@ -3,16 +3,16 @@
 
 ┏ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┓
 
-⌢⌢⌢⌢⌢⌢⌢⌢
+ ⁔⁔⁔⁔⁔⁔⁔
 
 Heyo! We've a fictive heavy DID system!
 **Medically recongised.**
 This is not an excuse, but we won't remember everyone we have talked to, don't take it personal.
 You can call us Zombie, Skeleton or any nickname you come up with (as long as it's reasonable)
 More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
+ ‿‿‿‿‿‿‿
 
-
-⌣⌣⌣⌣⌣⌣⌣⌣
+ ⁔⁔⁔⁔⁔⁔⁔
 <br> </br>
 DNI OR IWEC?!
 
@@ -25,9 +25,11 @@ DNI OR IWEC?!
 - We will never interact first with those fandoms.
 - Ships we disagree with (Not a DNI just don't expect us to talk about them or act interested.(e.g. Most Norton ships, Nakahara Chuuya ships, Zanka x Jabber, etc. Ask if you're interested)
 - Genderbends or feminizations of characters that are not canon or alter/system based. (DNI)
+  
+ ‿‿‿‿‿‿‿
 
-⌢⌢⌢⌢⌢⌢⌢⌢
-
+ ⁔⁔⁔⁔⁔⁔⁔
+ <br> </br>
 **BFYI** You should know...
 
 - Despite being in the bsd fandom, we will never interact with others fully if they're sitting as a cos of a character, espeically Nakaharas. You've ruined the character so much I refuse to talk to anyone who only sees his fanon version.
@@ -38,7 +40,7 @@ DNI OR IWEC?!
 - We will hide you if you feminize a character or see only their fanon version. This includes sexualising them or babying them.
 - I do not support MSI but we like their songs.
 
-⌣⌣⌣⌣⌣⌣⌣⌣
+ ‿‿‿‿‿‿‿
 
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
 
