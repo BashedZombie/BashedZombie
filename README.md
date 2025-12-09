@@ -25,6 +25,7 @@ DNI OR IWEC?!
 - BSD & CRK fans are on THIN ice (IWEC)
 - We will never interact first with those fandoms.
 - Ships we disagree with (Not a DNI just don't expect us to talk about them or act interested.(e.g. Most Norton ships, Nakahara Chuuya ships, Zanka x Jabber, etc. Ask if you're interested)
+- Nortcest (DNI)
 - Genderbends or feminizations of characters that are not canon or alter/system based. (DNI)
   
  ‿‿‿‿‿‿‿
