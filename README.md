@@ -25,7 +25,7 @@ DNI OR IWEC?!
 - BSD & CRK fans are on THIN ice (IWEC)
 - We will never interact first with those fandoms.
 - Ships we disagree with (Not a DNI just don't expect us to talk about them or act interested.(e.g. Most Norton ships, Nakahara Chuuya ships, Zanka x Jabber, etc. Ask if you're interested)
-- Nortcest (DNI)
+- Nortcest & any other kind of selfcest (DNI)
 - Genderbends or feminizations of characters that are not canon or alter/system based. (DNI)
   
  ‿‿‿‿‿‿‿
@@ -34,6 +34,7 @@ DNI OR IWEC?!
  <br> </br>
 **BFYI** You should know...
 
+- Big fan of basic ships (e.g. NortNaib, Tartaglia x Zhongli, Gojo x Geto, Aventurine x Ratio, Luca x Emil), we usually only pair a character with ONE other person and tend not to be a fan of rare pairs. We can be convinced, though. It's just a heads up as we tend to stick to our comfort ships.
 - Despite being in the bsd fandom, we will never interact with others fully if they're sitting as a cos of a character, espeically Nakaharas. You've ruined the character so much I refuse to talk to anyone who only sees his fanon version.
 - If you've read the BSD manga and other BOOKS then feel free to interact. 
 - We will never see IRLs or FictKins as the actual character. We will not be feeding into any delusions and will use strictly nicknames for you.
