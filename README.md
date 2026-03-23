@@ -9,7 +9,6 @@ Heyo! We've a fictive heavy DID system!
 **Medically recongised.**
 This is not an excuse, but we won't remember everyone we have talked to, don't take it personal.
 You can call us Zombie, Skeleton or any nickname you come up with (as long as it's reasonable)
-More in-depth information is in our carrd & pronouns.cc, one holds information, the other holds frequent fronters. I implore you to check them out if you want to talk to us.
 
  ‿‿‿‿‿‿‿
 
@@ -22,8 +21,6 @@ DNI OR IWEC?!
 - Endo systems (DNI)
 - IRLs of characters (DNI)
 - Ages 17 or younger (DNI)
-- BSD & CRK fans are on THIN ice (IWEC)
-- We will never interact first with those fandoms.
 - Ships we disagree with (Not a DNI just don't expect us to talk about them or act interested.(e.g. Most Norton ships, Nakahara Chuuya ships, Zanka x Jabber, etc. Ask if you're interested)
 - Nortcest & any other kind of selfcest (DNI)
 - Genderbends or feminizations of characters that are not canon or alter/system based. (DNI)
