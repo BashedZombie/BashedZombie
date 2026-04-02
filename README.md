@@ -1,4 +1,4 @@
-![](https://i.pinimg.com/1200x/b5/7d/20/b57d200cd2ac24440651d9b9f525805c.jpg)
+![](https://i.pinimg.com/736x/c2/d3/18/c2d318f4ba52eeec3e8dda7e68836077.jpg)
 ## : Welcome to our **GitHub**! :
 
 ┏ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┓
@@ -44,7 +44,7 @@ DNI OR IWEC?!
 
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
 
-![](https://i.pinimg.com/736x/56/a0/c4/56a0c427153305f938ea3c8321ff5835.jpg)
+ ![](https://i.pinimg.com/736x/56/a0/c4/56a0c427153305f938ea3c8321ff5835.jpg) 
 
 <!--
 **BashedZombie/BashedZombie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
