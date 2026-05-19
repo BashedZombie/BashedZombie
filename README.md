@@ -36,12 +36,23 @@ DNI OR IWEC?!
 **BFYI** You should know...
 
 - Big fan of basic ships (e.g. NortNaib, Tartaglia x Zhongli, Gojo x Geto, Aventurine x Ratio, Luca x Emil), we usually only pair a character with ONE other person and tend not to be a fan of rare pairs. We can be convinced, though. It's just a heads up as we tend to stick to our comfort ships, this is not a DNI. You have your ships and we have ours, and thats all there is to it.
-- Despite being in the bsd fandom, we will never interact with others fully if they're sitting as a cos of a character, espeically Nakaharas. You've ruined the character so much I refuse to talk to anyone who only sees his fanon version.
-- If you've read the BSD manga and other BOOKS then feel free to interact. 
 - We will never see IRLs or FictKins as the actual character. We will not be feeding into any delusions and will use strictly nicknames for you.
 - We do not add people unless we've spoken at least once or twice! This includes adding us on Discord.
-- We're sexually repulsed and jokes make us heavily uncomfortable by people we do not know. If we have hidden you that is likely the reason. Yes, this includes the act of humping your ponytown friend.
-- We will hide you if you feminize a character or see only their fanon version. This includes sexualising them or babying them.
+- We're sexually repulsed and jokes by people we do not know make us heavily uncomfortable. If we have hidden you that is likely the reason. Yes, this includes the act of humping your ponytown friend.
+- We will hide you if you feminize a character or see only their fanon version. This includes sexualising them or babying them. **If you have questions, ask.**
+
+**Interests!**
+
+- Identity V
+- Blue Lock
+- Gachiakuta
+- Horror games
+- Pokemon (favourite pokemon: Luxray or Lucario)
+- Jujutsu Kaisen
+- My Hero Academia
+- Danganronpa
+- Sonic
+- And more!
 
  ‿‿‿‿‿‿‿
 
