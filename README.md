@@ -9,6 +9,7 @@ Heyo! We've a fictive heavy DID system!
 **Medically recongised.**
 This is not an excuse, but we won't remember everyone we have talked to, don't take it personal.
 You can call us Zombie, Skeleton or any nickname you come up with (as long as it's reasonable)
+If you have a problem with us personally, come talk to us. Do not drag our friends into things.
 
  ‿‿‿‿‿‿‿
 
